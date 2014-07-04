@@ -8,6 +8,10 @@ Jennifer was super pleased with the decision.
 ![magic potion](http://media.tumblr.com/tumblr_mdq17cf4S61rvqp08.gif)
 
 Old Earl gets super powers.
+
+![Turnt](http://p.fod4.com/upload/aff3567c9abaad4b798a350dc1e1b1a3/8OqtVI7GSVecw0NB0O9O_Horse%20Horseboy.gif)
+
+
 <!--end team ponies-->
 <!--begin team bunnies-->
 
